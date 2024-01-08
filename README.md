@@ -10,6 +10,6 @@
 
 ## Feito por:
 
-### Joana Santos
+### Joji Takenaka
 
 ### Linkedin:
